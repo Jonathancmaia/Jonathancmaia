@@ -24,5 +24,6 @@ Sinta-se à vontade para entrar em contato comigo por meio das seguintes platafo
 
 - [LinkedIn](https://www.linkedin.com/in/jonathan-antonio-cavalcanti-maia-658716145/)
 - [E-mail](mailto:jonathancmaia@gmail.com)
+- [WhatsApp](https://wa.me/5521980892433)
 
 Obrigado por visitar meu perfil!
